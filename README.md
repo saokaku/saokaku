@@ -11,12 +11,3 @@
 ***
 
 ![](https://media.discordapp.net/attachments/876789768862695464/1264934197127024650/Mindscape_Soukaku_Partial.png?ex=66a05605&is=669f0485&hm=3658a327da26c5aef50039569a9f989df1c0f9579c25b9085cae051c67b0560e&=&format=webp&quality=lossless&width=1250&height=523)
-**![](https://nukos.neocities.org/toros/torozzz2.gif) Сон, мой страшный сон**
-
-**Есть только он, мой странный сон**
-
-**Я ставлю на кон**
-
-**Всю свою жизнь меняю на сон**
-
-**- Molchat Doma ![](https://nukos.neocities.org/toros/torosigh.gif)**
